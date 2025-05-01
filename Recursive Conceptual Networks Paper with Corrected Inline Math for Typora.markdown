@@ -1,4 +1,4 @@
-# Evan's Theory Or Knowledge
+# Evan's Theory Of Knowledge
 
 ## Recursive Conceptual Networks: A Provisional Task-Based Theory of Knowledge and Consciousness
 
